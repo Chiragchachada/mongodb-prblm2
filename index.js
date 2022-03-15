@@ -22,3 +22,4 @@
         
 
         </div>
+https://res.cloudinary.com/dcqew2kqy/image/upload/v1647325584/letter-initial-e-shopping-bag-for-online-digital-retail-e-commerce-shop-store-market-supermarket-company-brand-mobile-app-simple-creative-flat-logo-2G41XFC_cnofab.jpg
